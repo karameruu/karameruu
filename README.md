@@ -1,8 +1,7 @@
 <p align="center">
+timi studios should buff her and make her do 99999 damage
+<p align="center">
 
-  
 
-<img src="https://i.imgur.com/0ENpMpX.gif" width="250" height="300" />
+<img src="https://i.imgur.com/kwY8SVb.jpeg" width="400" height="250" />
 
- <p align="center">
-<a href="https://rentry.co/picayunedreams-"> <sup> rentry </sup>
