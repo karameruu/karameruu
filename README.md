@@ -1,7 +1,7 @@
 <p align="center">
-$\textsf{\color{#4f6aa5}{timi studios should buff her and make her do 99999 damage}}$
+$\textsf{\color{#7a32a0}{cutieful}}$
 <p align="center">
 
 
-<img src="https://i.imgur.com/FSj2BAb.png" />
+<img src="https://i.imgur.com/4ZP7yXS.png" />
 
